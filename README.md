@@ -57,7 +57,7 @@ Jeffrey Floy
 Jeka Wersiti
 Jonh Walther 
 Johnny Wild
-Johny Kolin
+Johny Ko
 James White
 Kit Boo
 Kamaz Larkins 
